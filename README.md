@@ -1,0 +1,2 @@
+# thelazyevilcat.github.io
+хостинг
